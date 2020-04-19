@@ -1,2 +1,2 @@
 # Learning-Resources
-For everyone
+https://www.bilibili.com/video/av69060979
